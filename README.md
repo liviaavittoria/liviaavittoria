@@ -11,3 +11,5 @@ Quero cursar artes cênicas e tambem gosto de psicologia
 Me interesso pela area de linguagens e humanas 
 
 Quero fazer curso de enfermagem ou farmacia 
+
+ig : liviaavittoriaa_
