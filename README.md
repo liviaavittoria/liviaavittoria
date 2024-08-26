@@ -12,4 +12,12 @@ Me interesso pela area de linguagens e humanas
 
 Quero fazer curso de enfermagem ou farmacia 
 
+Capacidade de comunicação e bom desenvolvimento criativo 
+
+Me interesso pela cozinha 
+
+Campinas sp 
+
+Gosto de musicas, filmes, yoga, passar o tempo com familia e amigos
+
 ig : liviaavittoriaa_
